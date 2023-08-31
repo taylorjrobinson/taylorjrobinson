@@ -12,5 +12,5 @@ I am a PhD student in Population Health Sciences at the Harvard T.H. Chan School
 - 💬 Ask me about PhD applications, MPH applications, research, student leadership at Harvard 
 - 📫 How to reach me: @TaylorRobinson_ on the bird app or https://www.linkedin.com/in/-taylorrobinson/ 
 - ⚡ Fun fact: Spotify Wrapped is my second favorite holiday after Christmas 
--- Previous appointments: Rappaport Public Policy Fellow, CDC Ferguson Fellow, Amgen NIH Scholar, Doris Duke Scholar, Hillman Academy Scholar, FAME Scholar 
+-     Previous appointments: Rappaport Public Policy Fellow, CDC Ferguson Fellow, Amgen NIH Scholar, Doris Duke Scholar, Hillman Academy Scholar, FAME Scholar 
 
